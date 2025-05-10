@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **armanruhit09@gmail.com**
 
-- 📄 Know about my experiences [resume](resume)
+- 📄 Know about my experiences [Resume](https://drive.google.com/drive/u/0/folders/1Zs0PVWROTiCkYlKXrsixH2kSSYkCEiBL)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
